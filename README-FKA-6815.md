@@ -1,8 +1,8 @@
-## Awortwe Felix Kwamena
+## Awortwe Felix Kwamena here 👋
 
 **I live for the pursuit of Knowledge**  
 
-
+<img src="https://media-exp1.licdn.com/dms/image/C4D03AQELPVaWYZVk4Q/profile-displayphoto-shrink_800_800/0/1606950045787?e=1639008000&v=beta&t=3GAQdHdnlrIip7jORAGioefAw1j4n53ayEkfnHyKxLM" alt="A picture of Awortwe Felix Kwamena" align="left" >
 Currently Project Manager for REL ( relgh.com ),
  Learning from Nikola Tesla, i am aspiring to be an Entrepreneur,Cloud Engineer, Climate Scientist, Software Developer and Inventor.
  I am a Writer and Poet and i fully support  UN Sdg's, i am also God fearing and a Good Christian .
@@ -34,8 +34,8 @@ Available for Volunteer work, Remote work and Open source projects .
 [Facebook](https://web.facebook.com/felix.awortwe.315) ,
 [Twitter](https://twitter.com/KwamenaFelix) ,
 [Linkedin](https://www.linkedin.com/in/felix-awortwe-kwamena-%F0%9F%87%AC%F0%9F%87%AD-4644a7140/) ,
-[Email](felixawortwe14@gmail.com) ,
-[Phone](+233544956815)
+[Email](mailto:felixawortwe14@gmail.com) ,
+/**[Phone](+233544956815)**/
 
 
 
