@@ -2,7 +2,7 @@
 
 **I live for the pursuit of Knowledge**  
 
-<img src="https://media-exp1.licdn.com/dms/image/C4D03AQELPVaWYZVk4Q/profile-displayphoto-shrink_800_800/0/1606950045787?e=1639008000&v=beta&t=3GAQdHdnlrIip7jORAGioefAw1j4n53ayEkfnHyKxLM" alt="A picture of Awortwe Felix Kwamena" align="left" width = "600px" height = "300px">
+<img src="https://media-exp1.licdn.com/dms/image/C4D03AQELPVaWYZVk4Q/profile-displayphoto-shrink_800_800/0/1606950045787?e=1639008000&v=beta&t=3GAQdHdnlrIip7jORAGioefAw1j4n53ayEkfnHyKxLM" alt="A picture of Awortwe Felix Kwamena" align="left" width = "300px" height = "300px">
 Currently Project Manager for REL ( relgh.com ),
  Learning from Nikola Tesla, i am aspiring to be an Entrepreneur,Cloud Engineer, Climate Scientist, Software Developer and Inventor.
  I am a Writer and Poet and i fully support  UN Sdg's, i am also God fearing and a Good Christian .
