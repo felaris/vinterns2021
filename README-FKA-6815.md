@@ -7,11 +7,17 @@ Currently Project Manager for REL ( relgh.com ),<br>
  Learning from Nikola Tesla, i am aspiring to be an Entrepreneur,<br>Cloud Engineer, Climate Scientist, Software Developer and Inventor.<br>
  I am a Writer and Poet and i fully support  UN Sdg's,<br> i am also God fearing and a Good Christian.
  <br>Learning from IBM nation Africa,Enactus Knust
- <br>Data Mavens Ltd, Andela, Pluralsight  and Google Developers (Knust)
+ <br>Data Mavens Ltd, Andela, Pluralsight,Google Developers (Knust),
+ <br> Youtube, Coursera , Programing hub , edx , Udemy and Everything 
  
  
  
 
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
  
 
 ### Have  knowledge in -
