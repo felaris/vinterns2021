@@ -36,7 +36,7 @@ Available for Volunteer work, Remote work and Open source projects .
 [Facebook](https://web.facebook.com/felix.awortwe.315) ,
 [Twitter](https://twitter.com/KwamenaFelix) ,
 [Linkedin](https://www.linkedin.com/in/felix-awortwe-kwamena-%F0%9F%87%AC%F0%9F%87%AD-4644a7140/) ,
-[Email](mailto:felixawortwe14@gmail.com) ,
+[Email](mailto:felixawortwe14@gmail.com)
 
 
 
