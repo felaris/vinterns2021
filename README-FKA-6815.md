@@ -10,15 +10,7 @@ Currently Project Manager for REL ( relgh.com ),<br>
  <br>Data Mavens Ltd, Andela, Pluralsight,Google Developers (Knust),
  <br> Youtube, Coursera , Programing hub , edx , Udemy and Everything 
  
- 
- 
 
- <br>
- <br>
- <br>
- <br>
- <br>
- 
 
 ### Have  knowledge in -
  
